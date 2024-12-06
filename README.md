@@ -1,1 +1,1 @@
-![black-modern-material-header-with-diagonal-silver-lines-banner-for-your-business-abstract-widescreen-background-vector](https://github.com/user-attachments/assets/8d7120a6-cf76-4844-a980-08b3009c381e)
+
